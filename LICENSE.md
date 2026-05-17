@@ -1,4 +1,4 @@
-# 
+# Personalizado Vegas Pro para PC addons é o melhor Vegas Pro para PC addons com integração de chat e gravação de áudio. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
